@@ -21,4 +21,4 @@ Apex is your haven for the highest echelons of human thought, harmonizing Nobel 
 
 Heartfelt gratitude to all contributors, elevating Apex to the summit of shared wisdom.
 
-[Your Name]
+Shubham Panchal
